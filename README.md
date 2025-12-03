@@ -1,5 +1,5 @@
 
-# 💫 Hi 👋, I'm Bratish Madarchod
+# 💫 Hi 👋, I'm Bratish Dasgupta
 *A passionate Software Engineer*
 
 Email Me 👉 ✉ *dasguptaratul2004@gmail.com* For Collaboration/Project or Anything Else. 😊😊
